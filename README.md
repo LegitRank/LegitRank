@@ -13,7 +13,6 @@
 I'm developing a project for LegitRank 🚀, I am writing on 2 sites 📃.
 I'm a Programming Teacher 💻. I'm developing an app with my team 👨🏼‍🤝‍👨🏻, 
 I also work as a FreeLancer 🆓.
-
 <br />
 
 ## 👩‍💻📱 My Released Applications
