@@ -16,7 +16,7 @@ I also work as a FreeLancer 🆓.
 <br />
 
 ## 👩‍💻📱 My Released Applications
-https://LegitRank.ga
+
 
 <br />
 <br />
