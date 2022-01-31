@@ -17,7 +17,7 @@ I also work as a FreeLancer 🆓.
 
 ## 👩‍💻📱 My Released Applications
 
-
+https://dsc.gg/legitrank
 <br />
 <br />
 <br />
